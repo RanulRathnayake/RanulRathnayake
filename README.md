@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **ranulrathnayake7@gmail.com**
 
-- ⚡ Fun fact **Call me Punga**
+- ⚡ Fun fact **call me Punga**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
